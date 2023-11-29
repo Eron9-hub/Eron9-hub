@@ -2,4 +2,4 @@
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning the basics of C-Sharp
 - 💞️ I’m looking to collaborate on with my class BFT32
-- 📫 How to reach me arifieron9@gmail.com
+- 📫 How to reach me arifieron9@gmail.com or money
